@@ -1,4 +1,4 @@
-# 👑 PRINCE JORDAN 👑
+# 👑 DEXVERIAN 👑
 
 - looking to contact me? my discord is <b>reqons</b>
   - i can also be found on [twitter](https://twitter.com/like4tbh) and [tumblr](https://heavensgate.tumblr.com/) if you want to keep up with my antics.
